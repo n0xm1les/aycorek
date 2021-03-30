@@ -1,1 +1,0 @@
-# Hi I'm Ayçörek! How can I help you?
