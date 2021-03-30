@@ -1,1 +1,1 @@
-# Merhaba ben Ayçörek nasıl yardımcı olabilirim?
+# Selam ben Ayçörek! Nasıl yardımcı olabilirim?
